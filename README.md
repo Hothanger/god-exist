@@ -1,3 +1,3 @@
-README and my very fitst one for my 1st project and this God-exist is one of several pages\
-Don[t really know what I am doing but doing is a good way to learn
-Marty Private Woship
+README and my very fitst "README" for my very first project. Project is "WHAT EVERY CHRISTIAN SHOULD KNOW" Marty Burgess of Woodstockl First Baptist. I really don't know what I am doing but doing is the best way to learn. DESCIPLESHIP or making Desciples is something the Baptist are very poor at. I have been Baptist all of my life and Southern Baptist save a man then leave him hanging. This project is to bring those saved souls left to the ways of the wicked one into a close relationship with Christ where they can do the same and they can do the smae and they can and on and on
+Marty Burgess Private Worship
+
